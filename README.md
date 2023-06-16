@@ -1,0 +1,2 @@
+# WEB_AUT_AMANDA_OZOLINA_MD2
+Tīmekļa tehnoloģijas
